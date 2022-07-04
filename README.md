@@ -1,7 +1,4 @@
-## STOP DOING BEG-BOUNTIES - STOP COPYING ANOTHERS POC ! DO SOMETHING DIFFERENT!🔴🔴🔴🔴✔
-## **Want to support my work?**
-## DONT TRY HACKING WITHOUT BASICS --- IT WILL BE DANGEROUS FOR YOU AND YOUR FUTURE!
- 
+
 <p align="center">
   <img src="https://piximus.net/media2/47111/fails-gifs-that-will-keep-you-laughing-for-a-long-time-1.gif">
   </p>
